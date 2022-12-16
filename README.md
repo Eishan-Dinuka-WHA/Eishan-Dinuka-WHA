@@ -20,7 +20,7 @@
 
 - 📫 How to reach me **eishan2dinuka@gmail.com**
 
-- ⚡ Fun fact : **Fan of Cricket🏏 **
+- ⚡ Fun fact: Fan of Cricket🏏
 
 
 
